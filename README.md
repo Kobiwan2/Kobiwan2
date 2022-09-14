@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kobiwan2
+- 👀 I’m interested in games
+- 🌱 I’m currently learning to code
+- 📫 How to reach me afnfonseca@gmail.com
